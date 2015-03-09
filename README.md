@@ -1,0 +1,1 @@
+I will upload one note about English listening practising per weekday.
